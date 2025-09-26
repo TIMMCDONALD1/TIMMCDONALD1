@@ -10,3 +10,5 @@ TIMMCDONALD1/TIMMCDONALD1 is a ✨ special ✨ repository because its `README.md
 You can click the Preview link to take a look at your changes.
 --->
 https://gdevamzon.wordpress.com/2024/01/04/gdevamzon-org/
+https://rewards.bing.com/welcome?rh=F57BD4D5&ref=rafsrchae 
+https://rewards.bing.com/welcome?rh=F57BD4D5&ref=rafsrchae
